@@ -34,4 +34,11 @@ I already really miss him, and I feel so fortunate that I was able to get to kno
 
 But in my mind, he isn't really gone. We all meet people who are not just a person, but they are an unstoppable energy, and that energy was injected into all of us. I have no doubt we will all take Shubhra's passion and kindness and pay it forward in our own worlds. And for that, I will always be thankful to him.
 
-Thanks, Chris, for putting this together, this is lovely.
+## Erica Brescia
+
+Shubra brought so much positivity, energy and optimism to his work at the Linux Foundation. His excitement and pride over the team's work was palpable and absolutely justified - the team has built a powerful platform to support the open source community. 
+
+I'm so grateful for Shubra's leadership, positive energy and friendship he brought to the LF and everyone around him.
+
+You will be dearly missed, Shubra, but your legacy will live on at the LF and beyond.
+
