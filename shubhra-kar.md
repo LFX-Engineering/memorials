@@ -17,3 +17,11 @@ I admired his passion in all his work and sense of committment to the LF and ope
 Also, I respected him so much for his drive and support of his team, growing them and taking care of them, even across organizations.
 
 You will be missed, rest in peace.
+
+## Erica Brescia
+
+Shubra brought so much positivity, energy and optimism to his work at the Linux Foundation. His excitement and pride over the team's work was palpable and absolutely justified - the team has built a powerful platform to support the open source community. 
+
+I'm so grateful for Shubra's leadership, positive energy and friendship he brought to the LF and everyone around him.
+
+You will be dearly missed, Shubra, but your legacy will live on at the LF and beyond.
