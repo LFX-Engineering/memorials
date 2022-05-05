@@ -36,9 +36,9 @@ But in my mind, he isn't really gone. We all meet people who are not just a pers
 
 ## Erica Brescia
 
-Shubra brought so much positivity, energy and optimism to his work at the Linux Foundation. His excitement and pride over the team's work was palpable and absolutely justified - the team has built a powerful platform to support the open source community. 
+Shubhra brought so much positivity, energy and optimism to his work at the Linux Foundation. His excitement and pride over the team's work was palpable and absolutely justified - the team has built a powerful platform to support the open source community. 
 
-I'm so grateful for Shubra's leadership, positive energy and friendship he brought to the LF and everyone around him.
+I'm so grateful for Shubhra's leadership, positive energy and friendship he brought to the LF and everyone around him.
 
-You will be dearly missed, Shubra, but your legacy will live on at the LF and beyond.
+You will be dearly missed, Shubhra, but your legacy will live on at the LF and beyond.
 
