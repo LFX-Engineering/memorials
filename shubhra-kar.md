@@ -42,3 +42,14 @@ I'm so grateful for Shubra's leadership, positive energy and friendship he broug
 
 You will be dearly missed, Shubra, but your legacy will live on at the LF and beyond.
 
+## Łukasz Gryglicki
+
+We first met in 2018 on KubeCon. He was a great man, always kind, always helpful.
+
+He had a great vision a a lot of plans regarding our new LFX product.
+
+I will remember him as a great man, mentor, collegue.
+
+I will also remember his last stage performance and then the shock that he passed away just minutes later.
+
+Rest in peace my dear friend.
