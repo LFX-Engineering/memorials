@@ -120,3 +120,10 @@ If you were lucky enough to work with Shubhra Kar you’ll understand the deep s
 As a manager and leader he ticked all of the important traits: bold, ambitious, available, intelligent, etc. He had clear and obvious technical chops and a vision for how things should go, and more importantly the confidence to get there. But for me, and above all else, he was probably the best listener I’ve had the good fortune to work for.  Many managers and leaders lay claim to this ability but he really was naturally good at it and as a result you just tried harder. Even if there was disagreement you always felt “heard”, alignment would happen and corrections would be made, and everyone came out feeling right about the way forward.
 
 As a colleague and a friend we spoke often about non work things, his life in India, the history of that part of the world, and our shared travels and experiences there.  He was a fellow motorcyclist, not having ridden in many years but still fond of his days riding his Royal Enfield himalayan. He was remarkable man, a gentle soul, an inspiring leader and we’re all better off having the good fortune to be a part of his story. I extend my sincere condolences to his family and we will miss him dearly.  May God bless his soul and may he forever rest in peace.
+
+## Asitha de Silva
+Shubhra was truly an inspirational human. His leadership and most importantly care for every single member of his team, regardless of their status, is something I will never forget. He made us all feel heard and appreciated anytime we spoke to him. It almost felt like his eternal goal was to lift up his team — always bringing them into the light when giving credit for the amazing work being done, for a community he loved.
+
+I take solace in remembering the last memory I have was of him being so happy and joyful, surrounded by a group of people that truly adored him.
+
+Rest In Peace, Shubhra. 
