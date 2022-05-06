@@ -121,9 +121,14 @@ As a manager and leader he ticked all of the important traits: bold, ambitious, 
 
 As a colleague and a friend we spoke often about non work things, his life in India, the history of that part of the world, and our shared travels and experiences there.  He was a fellow motorcyclist, not having ridden in many years but still fond of his days riding his Royal Enfield himalayan. He was remarkable man, a gentle soul, an inspiring leader and we’re all better off having the good fortune to be a part of his story. I extend my sincere condolences to his family and we will miss him dearly.  May God bless his soul and may he forever rest in peace.
 
+## Pranab Bajpai
+
+I was shocked to hear about Shubhra's untimely demise. Shubhra was a good mentor and a friend. He had very high EQ and I will always cherish my time spent with him. I pray to God to give strength to Kar family to overcome this tragedy.
+ॐ त्र्य॑म्बकं यजामहे सु॒गन्धिं॑ पुष्टि॒वर्ध॑नम् । उ॒र्वा॒रु॒कमि॑व॒ बन्ध॑नान् मृ॒त्योर्मु॑क्षीय॒ माऽमृता॑॑त् ।। om, tryambakaṁ yajāmahe sugandhiṁ puṣṭi-vardhanam urvā-rukamiva bandhanān mṛtyor-mukṣīya mā'mṛtāt I meditate on, and surrender myself to, the Divine Being who embodies the power of will, the power of knowledge, and the power of action. I pray to the Divine Being who manifests in the form of fragrance in the flower of life and is the eternal nourisher of the plant of life. Like a skillful gardener, may the Lord of Life disentangle me from the binding forces of my physical, psychological, and spiritual foes. May the Lord of Immortality residing within free me from death, decay, and sickness and unite me with immortality.
+
 ## Asitha de Silva
 Shubhra was truly an inspirational human. His leadership and most importantly care for every single member of his team, regardless of their status, is something I will never forget. He made us all feel heard and appreciated anytime we spoke to him. It almost felt like his eternal goal was to lift up his team — always bringing them into the light when giving credit for the amazing work being done, for a community he loved.
 
 I take solace in remembering the last memory I have was of him being so happy and joyful, surrounded by a group of people that truly adored him.
 
-Rest In Peace, Shubhra. 
+Rest In Peace, Shubhra.
