@@ -61,3 +61,18 @@ I first met Shubhra Kar when he was the Node.js Foundation marketing committee c
 Every technical community that started using LFX and loved it brought a huge smile to his face. Nothing made him happier than getting to build something people liked, and his smile was always wider because he built a team around him that he loved working with. Every new hire, he would say to me, “wait until you meet this amazing engineer I hired - going to knock your socks off”. He often would joke with me and others, “and the only reason we found this issue out is because ... people are actually using it” and then he'd be smiling wide.
 
 Shubhra treated his team like a community - they could all go work somewhere else for more money in a minute - but what kept him here was being able to work with colleagues he wanted to work with, many of whom became close friends, and many still, like a family. And that’s what makes his passing so much more difficult. Shubhra wasn’t just a great engineer, he wasn’t just a great manager, he wasn’t just a team leader, and he wasn't just a great human being. He was a friend, and in many cases you’ll hear people say he was “like a brother”. Shubhra Kar will absolutely be missed, but the amazing work he did will live on through the family he’s built up within the LF. Rest In Peace Shubhra; we will miss you dearly and we thank you for the time you chose to spend with us.
+
+## David Deal
+
+Shubhra was our beloved leader and visionary for the LFX platform. Always
+positive, supportive, and encouraging throughout my time developing the EasyCLA
+and LFX Security products. He always had time for me, always had a solution for
+me, and always provided the calming voice of reason to our teams. I remember so
+many times when I thought the product and team were so far behind, drowning with
+problems, and so many technical difficulties only to come out of a meeting with
+a fresh sense of purpose and focus. He had a magical way of bringing people
+together, incredibly talented people, with a common focus which was absolutely
+required (yet extremely difficult) for large teams. This seemed easy for him -
+he was a true natural. Everyone loved him, top to bottom, vendor, contractor,
+direct reports - absolutely everyone. We will miss your smiling face, sense of
+purpose, drive, and ambition. Rest In Peace, my friend.
