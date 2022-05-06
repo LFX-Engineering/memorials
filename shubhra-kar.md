@@ -62,6 +62,24 @@ Every technical community that started using LFX and loved it brought a huge smi
 
 Shubhra treated his team like a community - they could all go work somewhere else for more money in a minute - but what kept him here was being able to work with colleagues he wanted to work with, many of whom became close friends, and many still, like a family. And that’s what makes his passing so much more difficult. Shubhra wasn’t just a great engineer, he wasn’t just a great manager, he wasn’t just a team leader, and he wasn't just a great human being. He was a friend, and in many cases you’ll hear people say he was “like a brother”. Shubhra Kar will absolutely be missed, but the amazing work he did will live on through the family he’s built up within the LF. Rest In Peace Shubhra; we will miss you dearly and we thank you for the time you chose to spend with us.
 
+## Nadia Al Shomali 
+
+Shubhra was a true leader; his support, positivity and passion lead us to always be motivated and enjoying the hard work. I was fortunate to work with him and to learn from him, but it is unfortunate to be for short time. 
+Sharing some of Shubhra words that will keep lighting every step forward:   
+
+- "Confidence is the key". 
+- "Think values not features". 
+- "Life is short, go and do your passion and I will understand". 
+- "Be transparent with the community". 
+- "Let us make it right".
+- "Think of all the possibilities" 
+- 
+Shubhra was the father of the LFX and always will be, he is gone but not forgotten, may his soul rest in peace, and may my lord make it easier for his family and friends to pass through this big lose.  
+
+## Nithya Ruff
+
+I met Shubra a few years ago when he joined the LF to lead the visionary work of creating LFX. This was a big vision to make foundation as a service a reality, so that communities, members and LF staff could scale and manage foundations. Shubra had the passion, vision, smarts and leadership to be the one to lead us in this area. I enjoyed how enthusiastically he described the work his team was doing to the board and despite naysayers or headwinds, he and his team kept getting work done. I know I join many of his teammates, friends and family who will dearly miss him. He was taken too soon. We need to honor his work by continuing what he started. Goodbye my friend.
+
 ## David Deal
 
 Shubhra was our beloved leader and visionary for the LFX platform. Always
@@ -80,3 +98,4 @@ purpose, drive, and ambition. Rest In Peace, my friend.
 ## Chaitan Shet
 
 Shubhra, you are the most energetic person I have ever met in my life. You gave everyone of us, your time despite your own busy schedule. Anybody could look into your calendar, book a slot and there you were. There was nothing that was impossible in your dictionary. You taught me so much about Open Source, the LF and LFX Products. You taught me what passion really looks like. I don't know what life would look like without meeting you almost daily. Thank you for who you were Shubhra. I will miss your smiling face, energy, that can solve anything attitude and the human being who was just so relatable. It felt you were one amongst us, just like us, just so human. You bossed every challenge. You are loved. You live in our hearts. Rest in Peace smily. 
+
