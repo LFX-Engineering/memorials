@@ -112,3 +112,11 @@ My heart goes out to your wife, children, family and friends in these difficult 
 ## Hilary Carter
 
 Shubhra embodied the principles of the Linux Foundation in being humble, helpful, and hopeful with every facet of his being. He was a gentle soul who will be sorely missed by so many of his colleagues. Thank you to the Kar family who supported him in his work to make the LF and open source better. Our hearts are with you.
+
+## Steve Ira
+
+If you were lucky enough to work with Shubhra Kar you’ll understand the deep sentiment others have for him. I met Shubhra when he was interviewing at the Linux Foundation Presidio offices in San Francisco back in 2018.  Luckily for us the IT department was folded into the overall product team and under his leadership shortly after he arrived.  As he came from an operations background he was quick to identify the merits of closely integrating development work with the operational side. A lot of people talk about DevOps but not everyone really does this - he was exceptional in that regard and he was notably successful at it too. 
+
+As a manager and leader he ticked all of the important traits: bold, ambitious, available, intelligent, etc. He had clear and obvious technical chops and a vision for how things should go, and more importantly the confidence to get there. But for me, and above all else, he was probably the best listener I’ve had the good fortune to work for.  Many managers and leaders lay claim to this ability but he really was naturally good at it and as a result you just tried harder. Even if there was disagreement you always felt “heard”, alignment would happen and corrections would be made, and everyone came out feeling right about the way forward.
+
+As a colleague and a friend we spoke often about non work things, his life in India, the history of that part of the world, and our shared travels and experiences there.  He was a fellow motorcyclist, not having ridden in many years but still fond of his days riding his Royal Enfield himalayan. He was remarkable man, a gentle soul, an inspiring leader and we’re all better off having the good fortune to be a part of his story. I extend my sincere condolences to his family and we will miss him dearly.  May God bless his soul and may he forever rest in peace.
