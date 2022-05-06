@@ -76,6 +76,10 @@ Sharing some of Shubhra words that will keep lighting every step forward:
 - 
 Shubhra was the father of the LFX and always will be, he is gone but not forgotten, may his soul rest in peace, and may my lord make it easier for his family and friends to pass through this big lose.  
 
+## Nithya Ruff
+
+I met Shubra a few years ago when he joined the LF to lead the visionary work of creating LFX. This was a big vision to make foundation as a service a reality, so that communities, members and LF staff could scale and manage foundations. Shubra had the passion, vision, smarts and leadership to be the one to lead us in this area. I enjoyed how enthusiastically he described the work his team was doing to the board and despite naysayers or headwinds, he and his team kept getting work done. I know I join many of his teammates, friends and family who will dearly miss him. He was taken too soon. We need to honor his work by continuing what he started. Goodbye my friend.
+
 ## David Deal
 
 Shubhra was our beloved leader and visionary for the LFX platform. Always
