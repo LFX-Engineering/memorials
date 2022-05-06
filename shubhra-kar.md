@@ -62,6 +62,20 @@ Every technical community that started using LFX and loved it brought a huge smi
 
 Shubhra treated his team like a community - they could all go work somewhere else for more money in a minute - but what kept him here was being able to work with colleagues he wanted to work with, many of whom became close friends, and many still, like a family. And that’s what makes his passing so much more difficult. Shubhra wasn’t just a great engineer, he wasn’t just a great manager, he wasn’t just a team leader, and he wasn't just a great human being. He was a friend, and in many cases you’ll hear people say he was “like a brother”. Shubhra Kar will absolutely be missed, but the amazing work he did will live on through the family he’s built up within the LF. Rest In Peace Shubhra; we will miss you dearly and we thank you for the time you chose to spend with us.
 
+## Nadia Al Shomali 
+
+Shubhra was a true leader; his support, positivity and passion lead us to always be motivated and enjoying the hard work. I was fortunate to work with him and to learn from him, but it is unfortunate to be for short time. 
+Sharing some of Shubhra words that will keep lighting every step forward:   
+
+- "Confidence is the key". 
+- "Think values not features". 
+- "Life is short, go and do your passion and I will understand". 
+- "Be transparent with the community". 
+- "Let us make it right".
+- "Think of all the possibilities" 
+- 
+Shubhra was the father of the LFX and always will be, he is gone but not forgotten, may his soul rest in peace, and may my lord make it easier for his family and friends to pass through this big lose.  
+
 ## David Deal
 
 Shubhra was our beloved leader and visionary for the LFX platform. Always
@@ -76,3 +90,4 @@ required (yet extremely difficult) for large teams. This seemed easy for him -
 he was a true natural. Everyone loved him, top to bottom, vendor, contractor,
 direct reports - absolutely everyone. We will miss your smiling face, sense of
 purpose, drive, and ambition. Rest In Peace, my friend.
+
