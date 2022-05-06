@@ -76,3 +76,7 @@ required (yet extremely difficult) for large teams. This seemed easy for him -
 he was a true natural. Everyone loved him, top to bottom, vendor, contractor,
 direct reports - absolutely everyone. We will miss your smiling face, sense of
 purpose, drive, and ambition. Rest In Peace, my friend.
+
+## Chaitan Shet
+
+Shubhra, you are the most energetic person I have ever met in my life. You gave everyone of us, your time despite your own busy schedule. Anybody could look into your calendar, book a slot and there you were. There was nothing that was impossible in your dictionary. You taught me so much about Open Source, the LF and LFX Products. You taught me what passion really looks like. I don't know what life would look like without meeting you almost daily. Thank you for who you were Shubhra. I will miss your smiling face, energy, that can solve anything attitude and the human being who was just so relatable. It felt you were one amongst us, just like us, just so human. You bossed every challenge. You are loved. You live in our hearts. Rest in Peace smily. 
