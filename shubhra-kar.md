@@ -73,4 +73,21 @@ Sharing some of Shubhra words that will keep lighting every step forward:
 - "Be transparent with the community". 
 - "Let us make it right".
 - "Think of all the possibilities" 
+- 
 Shubhra was the father of the LFX and always will be, he is gone but not forgotten, may his soul rest in peace, and may my lord make it easier for his family and friends to pass through this big lose.  
+
+## David Deal
+
+Shubhra was our beloved leader and visionary for the LFX platform. Always
+positive, supportive, and encouraging throughout my time developing the EasyCLA
+and LFX Security products. He always had time for me, always had a solution for
+me, and always provided the calming voice of reason to our teams. I remember so
+many times when I thought the product and team were so far behind, drowning with
+problems, and so many technical difficulties only to come out of a meeting with
+a fresh sense of purpose and focus. He had a magical way of bringing people
+together, incredibly talented people, with a common focus which was absolutely
+required (yet extremely difficult) for large teams. This seemed easy for him -
+he was a true natural. Everyone loved him, top to bottom, vendor, contractor,
+direct reports - absolutely everyone. We will miss your smiling face, sense of
+purpose, drive, and ambition. Rest In Peace, my friend.
+
