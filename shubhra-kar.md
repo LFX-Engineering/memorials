@@ -104,3 +104,8 @@ Shubhra, you are the most energetic person I have ever met in my life. You gave 
 The brightest, friendliest smile in the room was always yours.  While our paths only intersected for a brief time, I can say it was truly an honor to work with you.  You were the kind of leader and friend who would pull me aside to offer perspectives that could accelerate a plan forward or help us avoid stepping into a hole that might set us back.  While your ambitions were strong, your approach was never self-centered nor were you ever one to brag of your personal accomplishments.  You embodied team spirit - always willing to lend a hand, put in an extra effort, give credit to others, and seek opportunities that would enable others around you to shine.  We don’t come across leaders like you everyday. 
 
 My heart goes out to your wife, children, family and friends in these difficult times ahead.  Your spirit remains with all of us. Rest In Peace, my friend.
+
+## Hilary Carter
+
+Shubhra embodied the principles of the Linux Foundation in being humble, helpful, and hopeful with every facet of his being. He was a gentle soul who will be sorely missed by so many of his colleagues. Thank you to the Kar family who supported him in his work to make the LF and open source better. Our hearts are with you.
+
