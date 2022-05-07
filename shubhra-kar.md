@@ -145,3 +145,13 @@ Our team was sharing memories this week and something we all remember was what a
 
 We miss you Shubhra.
 
+## Al Tsang
+
+First and foremost, Shubhra was a dear friend of mine. He tirelessly devoted himself to helping others and I was lucky to be have been a recipient of his generosity and kindness. He brought inspiration, encouragement, hope and even levity - when you most needed it. His outlook on life made a profound an impression on me to always look at the "whole big picture" in the most challenging circumstances and the most satisfying pinnacles of achievement. He would always grin with that glimmer in his eye and say to me "this is only the beginning" when we achieved our first signs of success and that was always what I needed to push forward.
+
+Shubhra was my trusted business advisor, comrade in arms in product and marketing, and an unfailingly reliable person I could turn to "just get sh^t done" in the workplace.  His work ethic and output on deliverables and productivity never ceased to me amaze me.  He was a rare person who could not just paint a vision and come up with a strategy - he operationally could carry out execution.  So often have I encountered smart people with the former - but completely lacking the latter.  Shubhra was the rare embodiment of excellence on both sides of the entrepreneurial coin and it's no wonder he achieved so much in his professional career. "It's like what they say, Al...", he would tell me, "... a vision without execution is just a vision."
+
+Shubhra, I remember our last time together, having a delightful lunch in Hayward eating Mediterranean food with you, like it was yesterday.  Little did I realize that I would look back on your home cooked Biryani and count it as one of my personal blessings for something you did for all of us. It was so "Shubhra". You put everything into what you did personally, professionally and always... always wholly.
+
+Rest in peace, my dear friend.
+
