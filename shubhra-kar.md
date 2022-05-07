@@ -133,7 +133,20 @@ I take solace in remembering the last memory I have was of him being so happy an
 
 Rest In Peace, Shubhra.
 
+## Issac J Roth
+
+Shubhra was already a force of nature when he brought his incredible enthusiasm to the Wily Technology / CA team. I remember his boundless energy which could bowl over a colleague or customer. Later when I was building StrongLoop and needed help with navigating the chaos of the Node.js community, Shubhra's well of passion came to mind. He wanted to start a company but somehow I convinced him to join ours instead. As this journey progressed and we helped form the Node Foundation with LF and the greater community, Shubhra's ability to bring people together and tireless commitment to finding common ground would be an asset to everyone who worked with him. It felt like a natural progression when he would ultimately join the Linux Foundation and take on roles of increasing responsibility serving open source communities. I know many of us from these "past lives" of Shubhra were proud of him and his continued impact.
+
+Our team was sharing memories this week and something we all remember was what a devoted chef he was. I like to think of him in this light: Offering extravagant nourishment to his colleagues and friends with that same boundless enthusiasm so many experienced in their professional interactions. Here he is cooking Dum Biryani for us at one of the quarterly in-person get-togethers in 2014.
+
+![image](https://user-images.githubusercontent.com/3821533/167210228-ea8255dd-6ba4-4399-9d95-f62f514f5494.jpeg)
+
+![image](https://user-images.githubusercontent.com/3821533/167210292-f25db029-4edf-4b44-b81c-7c32e566e92b.jpeg)
+
+We miss you Shubhra.
+
 ## Al Tsang
+
 First and foremost, Shubhra was a dear friend of mine. He tirelessly devoted himself to helping others and I was lucky to be have been a recipient of his generosity and kindness. He brought inspiration, encouragement, hope and even levity - when you most needed it. His outlook on life made a profound an impression on me to always look at the "whole big picture" in the most challenging circumstances and the most satisfying pinnacles of achievement. He would always grin with that glimmer in his eye and say to me "this is only the beginning" when we achieved our first signs of success and that was always what I needed to push forward.
 
 Shubhra was my trusted business advisor, comrade in arms in product and marketing, and an unfailingly reliable person I could turn to "just get sh^t done" in the workplace.  His work ethic and output on deliverables and productivity never ceased to me amaze me.  He was a rare person who could not just paint a vision and come up with a strategy - he operationally could carry out execution.  So often have I encountered smart people with the former - but completely lacking the latter.  Shubhra was the rare embodiment of excellence on both sides of the entrepreneurial coin and it's no wonder he achieved so much in his professional career. "It's like what they say, Al...", he would tell me, "... a vision without execution is just a vision."
@@ -141,3 +154,4 @@ Shubhra was my trusted business advisor, comrade in arms in product and marketin
 Shubhra, I remember our last time together, having a delightful lunch in Hayward eating Mediterranean food with you, like it was yesterday.  Little did I realize that I would look back on your home cooked Biryani and count it as one of my personal blessings for something you did for all of us. It was so "Shubhra". You put everything into what you did personally, professionally and always... always wholly.
 
 Rest in peace, my dear friend.
+
