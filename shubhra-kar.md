@@ -155,3 +155,11 @@ Shubhra, I remember our last time together, having a delightful lunch in Hayward
 
 Rest in peace, my dear friend.
 
+## Rudy Grigar
+I had the pleasure of getting to know Shubhra at our first off-site meeting at McMenamins Edgefield. After a day of meetings, I immediately appreciated Shubhra’s experience in the operations role. Next our group went to dinner, and we talked about family, past work experiences and how excited we were about the challenges at the LF. By the late evening we were playing pool and talking about his childhood playing Carrom. Within these few hours together I felt our friendship had already formed.
+
+Shubhra was not just a colleague but a friend to all of us. His laugh and smile could defuse even the most tense conversation. Shubhra always made time to listen and understand before taking action.
+
+His attitude was optimistic and forward looking, but also realistic. He used these qualities to show us he believed in us; he elevated the people around him. We could accomplish great things as long as we didn’t give up and kept our focus on the small wins. Don’t boil the ocean. He knew each small action we took was a step toward the end goal: building the LFX Platform into a world class experience for open source projects.
+
+Shubhra’s legacy will live on in his family, his friends, and our work at the Linux Foundation. God bless his soul and may he Rest In Peace.
