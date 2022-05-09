@@ -73,7 +73,7 @@ Sharing some of Shubhra words that will keep lighting every step forward:
 - "Be transparent with the community". 
 - "Let us make it right".
 - "Think of all the possibilities" 
-- 
+
 Shubhra was the father of the LFX and always will be, he is gone but not forgotten, may his soul rest in peace, and may my lord make it easier for his family and friends to pass through this big lose.  
 
 ## Nithya Ruff
