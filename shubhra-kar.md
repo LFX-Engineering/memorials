@@ -163,3 +163,9 @@ Shubhra was not just a colleague but a friend to all of us. His laugh and smile 
 His attitude was optimistic and forward looking, but also realistic. He used these qualities to show us he believed in us; he elevated the people around him. We could accomplish great things as long as we didn’t give up and kept our focus on the small wins. Don’t boil the ocean. He knew each small action we took was a step toward the end goal: building the LFX Platform into a world class experience for open source projects.
 
 Shubhra’s legacy will live on in his family, his friends, and our work at the Linux Foundation. God bless his soul and may he Rest In Peace.
+
+## John Mertic
+
+I knew Shubhra from his role leading products and engineering at the Linux Foundation, most recently in the role of CTO and GM of Products. As I read the comments above, many of them resinate with me as well regarding his professionalism, kindness, and hopefulness. It's a tough role he was in, where many have stumbled before, but one where he recognized that making others successful made everyone successful. I personally saw that in many of my interactions, where he would be encourgaing and appreciative of my support of his team. He had a hard row to hoe for sure, but one he was steadfast in and saw the end as a victory for all of us more than his own.
+
+My deepest condolances to his family, his friends, and all his collegues here at the Linux Foundation. Losing someone so suddenly is a shock to us all, but the spirit of him lives on with all of us. I am grateful I had the opporunity to know him.
