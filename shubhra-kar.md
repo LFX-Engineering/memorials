@@ -6,7 +6,7 @@ I thought it might be a good idea for us all to gather our thoughts, memories an
 
 Please add your contribution below via a pull request. 
 
-Also, please consider donating to: TBD
+Also, please consider donating to: https://www.gofundme.com/f/shubhra-kar-memorial-fund
 
 ## Chris Aniszczyk
 
