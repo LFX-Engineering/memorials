@@ -169,3 +169,11 @@ Shubhra’s legacy will live on in his family, his friends, and our work at the 
 I knew Shubhra from his role leading products and engineering at the Linux Foundation, most recently in the role of CTO and GM of Products. As I read the comments above, many of them resinate with me as well regarding his professionalism, kindness, and hopefulness. It's a tough role he was in, where many have stumbled before, but one where he recognized that making others successful made everyone successful. I personally saw that in many of my interactions, where he would be encourgaing and appreciative of my support of his team. He had a hard row to hoe for sure, but one he was steadfast in and saw the end as a victory for all of us more than his own.
 
 My deepest condolances to his family, his friends, and all his collegues here at the Linux Foundation. Losing someone so suddenly is a shock to us all, but the spirit of him lives on with all of us. I am grateful I had the opporunity to know him.
+
+## Gabriele Columbro
+
+Despite I only had the pleasure to interact with him for two years, Shubhra's gracious leadership style is something that will stay with me forever: he was an insipiration for all of us. Shubhra had the unique gift of respond with kindness to whatever complex request or criticism, whether constructive or not. Shubhra was always fair and willing to listen, so it didn't take much for us at FINOS and his team to bond in a very unique and special way.
+
+My last interaction with him was just one hour before the tragedy, while waiting in line for mexican food, and we jokingly compared notes on the different styles Italians and Indians haveof cutting in line. I will never forget how, even in the most stressful situation, Shubhra had a natural way of making things light, a gift I truly admire.
+
+I miss you my friend and know we will be carrying your legacy, both in terms of the products you led as well as the positive and friendly attitude you had in every single interaction. My deepest condolences to his family in this unimaginably rough time 💔
