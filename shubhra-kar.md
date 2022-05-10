@@ -177,3 +177,22 @@ Despite I only had the pleasure to interact with him for two years, Shubhra's gr
 My last interaction with him was just one hour before the tragedy, while waiting in line for mexican food, and we jokingly compared notes on the different styles Italians and Indians haveof cutting in line. I will never forget how, even in the most stressful situation, Shubhra had a natural way of making things light, a gift I truly admire.
 
 I miss you my friend and know we will be carrying your legacy, both in terms of the products you led as well as the positive and friendly attitude you had in every single interaction. My deepest condolences to his family in this unimaginably rough time 💔
+
+## Clyde Seepersad
+
+Shubhra took on the impossible with a passion, an infectious optimism and a wonderful sense of humor and humility. My words fail so I'll reach for Andy Williams:
+
+To fight for the right
+Without question or pause,
+To be willing to march
+Into hell for a heavenly cause.
+And I know if I'll only be true
+To this glorious quest
+That my heart will lie peaceful and calm
+When I'm laid to my rest
+
+And the world will be better for this
+And one man, sore and covered with scars
+Still strove with his last ounce of courage
+To fight the unbeatable foe
+To reach the unreachable star
