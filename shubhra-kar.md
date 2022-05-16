@@ -203,5 +203,6 @@ Shubhra was one of the warmest members of our Strongloop family, with his huge 
  
 While there are many many memories of Shubhra, one of the best ones are of his Dum Biryani. True to his nature, he was one hundred percent authentic about it, cooking it from scratch, slicing onions, making his masala from scratch, sealing the biryani with dough and keeping us at bay patiently waiting till it was done to perfection.
  
+ 
 Dearest Shubhra, May you shine brightly wherever you are, for ever more.
 
